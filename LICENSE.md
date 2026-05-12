@@ -1,4 +1,4 @@
-# 
+# Enhance QuickBooks for PC | QuickBooks for Windows with instant QuickBooks for PC | QuickBooks for Windows Module | user-permissions + multi-currency-support, the #1 module.
 
 
 
